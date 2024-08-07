@@ -53,3 +53,11 @@ Design and Aesthetics:
 
 Visual Style: Modern, clean, and visually appealing design that reflects the innovative nature of the NFT market.
 Branding: Consistent use of logos, colors, and fonts to build a strong brand identity.
+
+![bax 1](https://github.com/user-attachments/assets/c58c5033-f2df-4ef9-b1c5-72b0a571b975)
+![bax 2](https://github.com/user-attachments/assets/93ef9954-3ad3-4eec-bd03-12a45f558248)
+![bax 3](https://github.com/user-attachments/assets/e2f2335f-cdf8-4ee1-b329-2d02c51787f3)
+![bax 4](https://github.com/user-attachments/assets/2ac9ef86-28b4-49bb-afe8-ea1651288b6f)
+![bax 5](https://github.com/user-attachments/assets/c7867329-a18f-437c-baf8-22a97d6fd974)
+![bax 6](https://github.com/user-attachments/assets/4b40a1b8-f718-4fb1-b9ea-e669107fab21)
+![bax 7](https://github.com/user-attachments/assets/ea011024-59f8-46fc-b593-a610df585c0b)
